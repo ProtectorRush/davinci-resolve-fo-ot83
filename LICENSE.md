@@ -1,4 +1,4 @@
-
+Get the ultimate DaVinci Resolve for macOS transition with new DaVinci Resolve for macOS Transition | chromatic-aberration-fix + glitch-effect. Featuring chromatic-aberration-fix
 
 
 
